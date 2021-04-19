@@ -1,2 +1,2 @@
 # Frikzy-Gay
-To annoy Frikzy
+@Frikzyneh#5679 Is gay
